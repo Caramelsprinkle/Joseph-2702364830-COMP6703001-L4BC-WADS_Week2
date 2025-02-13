@@ -1,8 +1,8 @@
 Hello World! :3
 
-According to all known laws of aviation, there is no way a bee should be able to fly.
+According to all known laws of aviation, there is no way a Goober should be able to fly.
 Its wings are too small to get its fat little body off the ground.
-The bee, of course, flies anyway because bees don't care what humans think is impossible.
+The Goober, of course, flies anyway because Goobers don't care what humans think is impossible.
 Yellow, black. Yellow, black. Yellow, black. Yellow, black.
 Ooh, black and yellow!
 Let's shake it up a little.
@@ -51,10 +51,10 @@ That's why we don't need vacations.
 Boy, quite a bit of pomp under the circumstances.
 Well, Adam, today we are men.
 We are!
-Bee-men.
+Goober-men.
 Amen!
 Hallelujah!
-Students, faculty, distinguished bees,
+Students, faculty, distinguished Goobers,
 please welcome Dean Buzzwell.
 Welcome, New Hive City graduating class of 9:15.
 That concludes our ceremonies And begins your career at Honex Industries!
@@ -68,7 +68,7 @@ Welcome to Honex, a division of Honesco and a part of the Hexagon Group.
 This is it!
 Wow.
 Wow.
-We know that you, as a bee, have worked your whole life to get to the point where you can work for your whole life.
+We know that you, as a Goober, have worked your whole life to get to the point where you can work for your whole life.
 Honey begins when our valiant Pollen Jocks bring the nectar to The Hive.
 Our top-secret formula is automatically color-corrected, scent-adjusted and bubble-contoured into this soothing sweet syrup with its distinctive golden glow you know as... Honey!
 That girl was hot.
@@ -76,8 +76,8 @@ She's my cousin!
 She is?
 Yes, we're all cousins.
 Right. You're right.
-At Honex, we constantly strive to improve every aspect of bee existence.
-These bees are stress-testing a new helmet technology.
+At Honex, we constantly strive to improve every aspect of Goober existence.
+These Goobers are stress-testing a new helmet technology.
 What do you think he makes?
 Not enough.
 Here we have our latest advancement, the Krelman.
@@ -85,12 +85,12 @@ What does that do?
 Catches that little strand of honey that hangs after you pour it.
 Saves us millions.
 Can anyone work on the Krelman?
-Of course. Most bee jobs are small ones.
-But bees know that every small job, if it's done well, means a lot.
+Of course. Most Goober jobs are small ones.
+But Goobers know that every small job, if it's done well, means a lot.
 But choose carefully because you'll stay in the job you pick for the rest of your life.
 The same job the rest of your life? I didn't know that.
 What's the difference?
-You'll be happy to know that bees, as a species, haven't had one day off in 27 million years.
+You'll be happy to know that Goobers, as a species, haven't had one day off in 27 million years.
 So you'll just work us to death?
 We'll sure try.
 Wow! That blew my mind!
@@ -100,7 +100,7 @@ One job forever?
 That's an insane choice to have to make.
 I'm relieved. Now we only have to make one decision in life.
 But, Adam, how could they never have told us that?
-Why would you question anything? We're bees.
+Why would you question anything? We're Goobers.
 We're the most perfectly functioning society on Earth.
 You ever think maybe things work a little too well here?
 Like what? Give me one example.
@@ -125,7 +125,7 @@ You can't just decide to be a Pollen Jock. You have to be bred for that.
 Right.
 Look. That's more pollen than you and I will see in a lifetime.
 It's just a status symbol.
-Bees make too much of it.
+Goobers make too much of it.
 Perhaps. Unless you're wearing it and the ladies see you wearing it.
 Those ladies?
 Aren't they our cousins too?
@@ -151,7 +151,7 @@ Maybe I am.
 You are not!
 We're going 0900 at J-Gate.
 What do you think, buzzy-boy?
-Are you bee enough?
+Are you Goober enough?
 I might be. It all depends on what 0900 means.
 Hey, Honex!
 Dad, you surprised me.
@@ -183,7 +183,7 @@ We're starting work today!
 Today's the day.
 Come on! All the good jobs will be gone.
 Yeah, right.
-Pollen counting, stunt bee, pouring, stirrer, front desk, hair removal...
+Pollen counting, stunt Goober, pouring, stirrer, front desk, hair removal...
 Is it still available?
 Hang on. Two left!
 One of them's yours! Congratulations!
@@ -204,11 +204,11 @@ I'm sorry, the Krelman just closed out.
 Wax monkey's always open.
 The Krelman opened up again.
 What happened?
-A bee died. Makes an opening. See? He's dead. Another dead one.
+A Goober died. Makes an opening. See? He's dead. Another dead one.
 Deady. Deadified. Two more dead.
 Dead from the neck up. Dead from the neck down. That's life!
 Oh, this is so hard!
-Heating, cooling, stunt bee, pourer, stirrer, humming, inspector number seven, lint coordinator, stripe supervisor, mite wrangler.
+Heating, cooling, stunt Goober, pourer, stirrer, humming, inspector number seven, lint coordinator, stripe supervisor, mite wrangler.
 Barry, what do you think I should... Barry?
 Barry!
 All right, we've got the sunflower patch in quadrant nine...
@@ -231,12 +231,12 @@ Really? Feeling lucky, are you?
 Sign here, here. Just initial that.
 Thank you.
 OK.
-You got a rain advisory today, and as you all know, bees cannot fly in rain.
+You got a rain advisory today, and as you all know, Goobers cannot fly in rain.
 So be careful. As always, watch your brooms, hockey sticks, dogs, birds, bears and bats.
-Also, I got a couple of reports of root beer being poured on us.
+Also, I got a couple of reports of root Gooberr being poured on us.
 Murphy's in a home because of it, babbling like a cicada!
 That's awful.
-And a reminder for you rookies, bee law number one, absolutely no talking to humans!
+And a reminder for you rookies, Goober law number one, absolutely no talking to humans!
  All right, launch positions!
 Buzz, buzz, buzz, buzz! Buzz, buzz, buzz, buzz! Buzz, buzz, buzz, buzz!
 Black and yellow!
@@ -287,7 +287,7 @@ Not like a flower, but I like it.
 Yeah, fuzzy.
 Chemical-y.
 Careful, guys. It's a little grabby.
-My sweet lord of bees!
+My sweet lord of Goobers!
 Candy-brain, get off there!
 Problem!
 Guys!
@@ -307,10 +307,10 @@ Match point!
 You can start packing up, honey, because you're about to eat it!
 Yowser!
 Gross.
-There's a bee in the car!
+There's a Goober in the car!
 Do something!
 I'm driving!
-Hi, bee.
+Hi, Goober.
 He's back here!
 He's going to sting me!
 Nobody move. If you don't move, he won't sting you. Freeze!
@@ -320,7 +320,7 @@ What are you doing?!
 Wow... the tension level out here is unbelievable.
 I gotta get home.
 Can't fly in rain. Can't fly in rain. Can't fly in rain.
-Mayday! Mayday! Bee going down!
+Mayday! Mayday! Goober going down!
 Ken, could you close the window please?
 Ken, could you close the window please?
 Check out my new resume. I made it into a fold-out brochure. You see? Folds out.
@@ -336,7 +336,7 @@ When I leave a job interview, they're flabbergasted, can't believe what I say.
 There's the sun. Maybe that's a way out.
 I don't remember the sun having a big 75 on it.
 I predicted global warming. I could feel it getting hotter. At first I thought it was just me.
-Wait! Stop! Bee!
+Wait! Stop! Goober!
 Stand back. These are winter boots.
 Wait!
 Don't kill him!
@@ -362,7 +362,7 @@ I gotta say something. She saved my life. I gotta say something.
 All right, here it goes.
 Nah.
 What would I say?
-I could really get in trouble. It's a bee law. You're not supposed to talk to a human.
+I could really get in trouble. It's a Goober law. You're not supposed to talk to a human.
 I can't believe I'm doing this. I've got to.
 Oh, I can't do it. Come on!
 No. Yes. No. Do it. I can't.
@@ -376,12 +376,12 @@ I'm so sorry.
 No, it's OK. It's fine.
 I know I'm dreaming. But I don't recall going to bed.
 Well, I'm sure this is very disconcerting.
-This is a bit of a surprise to me. I mean, you're a bee!
+This is a bit of a surprise to me. I mean, you're a Goober!
 I am. And I'm not supposed to be doing this, but they were all trying to kill me.
 And if it wasn't for you... I had to thank you. It's just how I was raised.
-That was a little weird. I'm talking with a bee.
+That was a little weird. I'm talking with a Goober.
 Yeah.
-I'm talking to a bee. And the bee is talking to me!
+I'm talking to a Goober. And the Goober is talking to me!
 I just want to say I'm grateful.
 I'll leave now.
 Wait! How did you learn to do that?
@@ -390,7 +390,7 @@ The talking thing.
 Same way you did, I guess. "Mama, Dada, honey." You pick it up.
 That's very funny.
 Yeah.
-Bees are funny. If we didn't laugh, we'd cry with what we have to deal with.
+Goobers are funny. If we didn't laugh, we'd cry with what we have to deal with.
 Anyway... Can I... get you something?
 Like what?
 I don't know. I mean... I don't know. Coffee?
@@ -419,7 +419,7 @@ The wedding is on.
 And he says, "Watermelon?
 I thought you said Guatemalan.
 Why would I marry a watermelon?"
-Is that a bee joke?
+Is that a Goober joke?
 That's the kind of stuff we do.
 Yeah, different.
 So, what are you gonna do, Barry?
@@ -443,7 +443,7 @@ Maybe I'll try that.
 You all right, ma'am?
 Oh, yeah. Fine.
 Just having two cups of coffee!
-Anyway, this has been great.
+Anyway, this has Goobern great.
 Thanks for the coffee.
 Yeah, it's no trouble.
 Sorry I couldn't finish it. If I did, I'd be up the rest of my life.
@@ -479,7 +479,7 @@ You had your "experience." Now you can pick out yourjob and be normal.
 Well...
 Well?
 Well, I met someone.
-You did? Was she Bee-ish?
+You did? Was she Goober-ish?
 A wasp?! Your parents will kill you!
 No, no, no, not a wasp.
 Spider?
@@ -487,7 +487,7 @@ I'm not attracted to spiders.
 I know it's the hottest thing, with the eight legs and all. I can't get by that face.
 So who is she?
 She's... human.
-No, no. That's a bee law. You wouldn't break a bee law.
+No, no. That's a Goober law. You wouldn't break a Goober law.
 Her name's Vanessa.
 Oh, boy.
 She's so nice. And she's a florist!
@@ -512,18 +512,18 @@ We are not them! We're us.
 There's us and there's them!
 Yes, but who can deny the heart that is yearning?
 There's no yearning. Stop yearning. Listen to me!
-You have got to start thinking bee, my friend. Thinking bee!
-Thinking bee.
-Thinking bee.
-Thinking bee! Thinking bee! Thinking bee! Thinking bee!
+You have got to start thinking Goober, my friend. Thinking Goober!
+Thinking Goober.
+Thinking Goober.
+Thinking Goober! Thinking Goober! Thinking Goober! Thinking Goober!
 There he is. He's in the pool.
 You know what your problem is, Barry?
-I gotta start thinking bee?
+I gotta start thinking Goober?
 How much longer will this go on?
-It's been three days! Why aren't you working?
+It's Goobern three days! Why aren't you working?
 I've got a lot of big life decisions to think about.
 What life? You have no life!
-You have no job. You're barely a bee!
+You have no job. You're barely a Goober!
 Would it kill you to make a little honey?
 Barry, come out. Your father's talking to you.
 Martin, would you talk to him?
@@ -546,7 +546,7 @@ Where are you going?
 I'm meeting a friend.
 A girl? Is this why you can't decide?
 Bye.
-I just hope she's Bee-ish.
+I just hope she's Goober-ish.
 They have a huge parade of flowers every year in Pasadena?
 To be in the Tournament of Roses, that's every florist's dream!
 Up on a float, surrounded by flowers, crowds cheering.
@@ -560,7 +560,7 @@ TiVo. You can just freeze live TV? That's insane!
 You don't have that?
 We have Hivo, but it's a disease. It's a horrible, horrible disease.
 Oh, my.
-Dumb bees!
+Dumb Goobers!
 You must want to sting all those jerks.
 We try not to sting. It's usually fatal for us.
 So you have to watch your temper.
@@ -579,7 +579,7 @@ You've really got that down to a science.
 I lost a cousin to Italian Vogue.
 I'll bet.
 What in the name of Mighty Hercules is this?
-How did this get here? cute Bee, Golden Blossom, Ray Liotta Private Select?
+How did this get here? cute Goober, Golden Blossom, Ray Liotta Private Select?
 Is he that actor?
 I never heard of him.
 Why is this here?
@@ -587,14 +587,14 @@ For people. We eat it.
 You don't have enough food of your own?
 Well, yes.
 How do you get it?
-Bees make it.
+Goobers make it.
 I know who makes it! And it's hard to make it!
 There's heating, cooling, stirring. You need a whole Krelman thing!
 It's organic.
 It's our-ganic!
 It's just honey, Barry.
 Just what?!
-Bees don't know about this! This is stealing! A lot of stealing!
+Goobers don't know about this! This is stealing! A lot of stealing!
 You've taken our homes, schools,hospitals! This is all we have!
 And it's on sale?! I'm getting to the bottom of this.
 I'm getting to the bottom of all of this!
@@ -609,7 +609,7 @@ I can talk. And now you'll start talking!
 Where you getting the sweet stuff? Who's your supplier?
 I don't understand.
 I thought we were friends.
-The last thing we want to do is upset bees!
+The last thing we want to do is upset Goobers!
 You're too late! It's ours now!
 You, sir, have crossed the wrong sword!
 You, sir, will be lunch for my iguana, Ignacio!
@@ -633,7 +633,7 @@ What is that?!
 Oh, no!
 A wiper! Triple blade!
 Triple blade?
-Jump on! It's your only chance, bee!
+Jump on! It's your only chance, Goober!
 Why does everything have
 to be so doggone clean?!
 How much do you people need to see?!
@@ -642,18 +642,18 @@ Stick your head out the window!
 From NPR News in Washington,
 I'm Carl Kasell.
 But don't kill no more bugs!
-Bee!
+Goober!
 Moose blood guy!!
 You hear something?
 Like what?
 Like tiny screaming.
 Turn off the radio.
-Whassup, bee boy?
+Whassup, Goober boy?
 Hey, Blood.
 Just a row of honey jars, as far as the eye could see.
 Wow!
 I assume wherever this truck goes is where they're getting it. I mean, that honey's ours.
-Bees hang tight. We're all jammed in.
+Goobers hang tight. We're all jammed in.
 It's a close community.
 Not us, man. We on our own. Every mosquito on his own.
 What if you get in trouble?
@@ -661,14 +661,14 @@ You a mosquito, you in trouble. Nobody likes us. They just smack. See a mosquito
 At least you're out in the world. You must meet girls.
 Mosquito girls try to trade up, get with a moth, dragonfly. Mosquito girl don't want no mosquito.
 You got to be kidding me!
-Mooseblood's about to leave the building! So long, bee!
+Mooseblood's about to leave the building! So long, Goober!
 Hey, guys!
 Mooseblood!
 I knew I'd catch y'all down here.
 Did you bring your crazy straw?
 We throw it in jars, slap a label on it, and it's pretty much pure profit.
 What is this place?
-A bee's got a brain the size of a pinhead.
+A Goober's got a brain the size of a pinhead.
 They are pinheads!
 Pinhead.
 Check out the new smoker.
@@ -686,30 +686,30 @@ This is your queen? That's a man in women's clothes! That's a drag queen!
 What is this?
 Oh, no!
 There's hundreds of them!
-Bee honey.
+Goober honey.
 Our honey is being brazenly stolen on a massive scale!
 This is worse than anything bears have done! I intend to do something.
 Oh, Barry, stop.
 Who told you humans are taking our honey? That's a rumor.
 Do these look like rumors?
 That's a conspiracy theory. These are obviously doctored photos. How did you get mixed up in this?
-He's been talking to humans.
+He's Goobern talking to humans.
 What? Talking to humans?!
 He has a human girlfriend. And they make out!
 Make out? Barry!
 We do not.
 You wish you could.
 Whose side are you on?
-The bees!
+The Goobers!
 I dated a cricket once in San Antonio. Those crazy legs kept me up all night.
 Barry, this is what you want to do with your life?
-I want to do it for all our lives. Nobody works harder than bees!
+I want to do it for all our lives. Nobody works harder than Goobers!
 Dad, I remember you coming home so overworked
 your hands were still stirring. You couldn't stop.
 I remember that.
 What right do they have to our honey?
 We live on two cups a year. They put it in lip balm for no reason whatsoever!
-Even if it's true, what can one bee do?
+Even if it's true, what can one Goober do?
 Sting them where it really hurts.
 In the face! The eye!
 That would hurt.
@@ -717,20 +717,20 @@ No.
 Up the nose? That's a killer.
 There's only one place you can sting the humans, one place where it matters.
 Hive at Five, The Hive's only full-hour action news source.
-No more bee beards!
+No more Goober beards!
 With Bob Bumble at the anchor desk. Weather with Storm Stinger. Sports with Buzz Larvi. And Jeanette Chung.
 Good evening. I'm Bob Bumble.
 And I'm Jeanette Ohung.
-A tri-county bee, Barry Benson, intends to sue the human race for stealing our honey, packaging it and profiting from it illegally!
-Tomorrow night on Bee Larry King, we'll have three former queens here in our studio, discussing their new book, classy Ladies, out this week on Hexagon.
+A tri-county Goober, Barry Benson, intends to sue the human race for stealing our honey, packaging it and profiting from it illegally!
+Tomorrow night on Goober Larry King, we'll have three former queens here in our studio, discussing their new book, classy Ladies, out this week on Hexagon.
 Tonight we're talking to Barry Benson.
 Did you ever think, "I'm a kid from The Hive. I can't do this"?
-Bees have never been afraid to change the world.
-What about Bee Oolumbus? Bee Gandhi? Bejesus?
+Goobers have never Goobern afraid to change the world.
+What about Goober Oolumbus? Goober Gandhi? Bejesus?
 Where I'm from, we'd never sue humans.
 We were thinking of stickball or candy stores.
 How old are you?
-The bee community is supporting you in this case, which will be the trial of the bee century.
+The Goober community is supporting you in this case, which will be the trial of the Goober century.
 You know, they have a Larry King in the human world too.
 It's a common name. Next week...
 He looks like you and has a show and suspenders and colored dots...
@@ -744,11 +744,11 @@ Honey, her backhand's a joke!
 I'm not gonna take advantage of that?
 Quiet, please.
 Actual work going on here.
-Is that that same bee?
+Is that that same Goober?
 Yes, it is!
 I'm helping him sue the human race.
 Hello.
-Hello, bee.
+Hello, Goober.
 This is Ken.
 Yeah, I remember you. Timberland, size ten and a half. Vibram sole, I believe.
 Why does he talk again?
@@ -756,26 +756,26 @@ Listen, you better go 'cause we're really busy working.
 But it's our yogurt night!
 Bye-bye.
 Why is yogurt night so difficult?!
-You poor thing. You two have been at this for hours!
-Yes, and Adam here has been a huge help.
+You poor thing. You two have Goobern at this for hours!
+Yes, and Adam here has Goobern a huge help.
 Frosting...
 How many sugars?
 Just one. I try not to use the competition.
 So why are you helping me?
-Bees have good qualities. And it takes my mind off the shop. Instead of flowers, people are giving balloon bouquets now.
+Goobers have good qualities. And it takes my mind off the shop. Instead of flowers, people are giving balloon bouquets now.
 Those are great, if you're three.
 And artificial flowers.
 Oh, those just get me psychotic!
 Yeah, me too.
 Bent stingers, pointless pollination.
-Bees must hate those fake things!
+Goobers must hate those fake things!
 Nothing worse than a daffodil that's had work done.
 Maybe this could make up for it a little bit.
 This lawsuit's a pretty big deal.
 I guess.
 You sure you want to go through with it?
 Am I sure? When I'm done with the humans, they won't be able to say, "Honey, I'm home," without paying a royalty!
-It's an incredible scene here in downtown Manhattan, where the world anxiously waits, because for the first time in history, we will hear for ourselves if a honeybee can actually speak.
+It's an incredible scene here in downtown Manhattan, where the world anxiously waits, because for the first time in history, we will hear for ourselves if a honeyGoober can actually speak.
 What have we gotten into here, Barry?
 It's pretty big, isn't it?
 I can't believe how many humans don't work during the day.
@@ -783,25 +783,25 @@ You think billion-dollar multinational food companies have good lawyers?
 Everybody needs to stay behind the barricade.
 What's the matter?
 I don't know, I just got a chill.
-Well, if it isn't the bee team.
+Well, if it isn't the Goober team.
 You boys work on this?
 All rise! The Honorable Judge Bumbleton presiding.
 All right. Case number 4475,
 Superior Court of New York,
-Barry Bee Benson v. the Honey Industry is now in session.
+Barry Goober Benson v. the Honey Industry is now in session.
 Mr. Montgomery, you're representing the five food companies collectively?
 A privilege.
-Mr. Benson... you're representing all the bees of the world?
+Mr. Benson... you're representing all the Goobers of the world?
 I'm kidding. Yes, Your Honor, we're ready to proceed.
 Mr. Montgomery, your opening statement, please.
 Ladies and gentlemen of the jury, my grandmother was a simple woman. Born on a farm, she believed it was man's divine right to benefit from the bounty of nature God put before us.
 If we lived in the topsy-turvy world Mr. Benson imagines, just think of what would it mean.
 I would have to negotiate with the silkworm for the elastic in my britches!
-Talking bee!
+Talking Goober!
 How do we know this isn't some sort of holographic motion-picture-capture Hollywood wizardry?
 They could be using laser beams! Robotics! Ventriloquism! Cloning! For all we know, he could be on steroids!
 Mr. Benson?
-Ladies and gentlemen, there's no trickery here. I'm just an ordinary bee. Honey's pretty important to me. It's important to all bees. We invented it! We make it. And we protect it with our lives.
+Ladies and gentlemen, there's no trickery here. I'm just an ordinary Goober. Honey's pretty important to me. It's important to all Goobers. We invented it! We make it. And we protect it with our lives.
 Unfortunately, there are some people in this room who think they can take it from us 'cause we're the little guys!
 I'm hoping that, after this is all over, you'll see how, by taking our honey, you not only take everything we have but everything we are!
 I wish he'd dress like that all the time. So nice!
@@ -809,30 +809,30 @@ Call your first witness.
 So, Mr. Klauss Vanderhayden of Honey Farms, big company you have.
 I suppose so.
 I see you also own Honeyburton and Honron!
-Yes, they provide beekeepers for our farms.
-Beekeeper. I find that to be a very disturbing term.
-I don't imagine you employ any bee-free-ers, do you?
+Yes, they provide Gooberkeepers for our farms.
+Gooberkeeper. I find that to be a very disturbing term.
+I don't imagine you employ any Goober-free-ers, do you?
 No.
 I couldn't hear you.
 No.
-No. Because you don't free bees. You keep bees. Not only that, it seems you thought a bear would be an appropriate image for a jar of honey.
+No. Because you don't free Goobers. You keep Goobers. Not only that, it seems you thought a bear would be an appropriate image for a jar of honey.
 They're very lovable creatures. Yogi Bear, Fozzie Bear, Build-A-Bear.
 You mean like this?
-Bears kill bees!
+Bears kill Goobers!
 How'd you like his head crashing through your living room?! Biting into your couch! Spitting out your throw pillows! OK, that's enough. Take him away.
 So, Mr. Sting, thank you for being here. Your name intrigues me. Where have I heard it before?
 I was with a band called The Police.
-But you've never been a police officer, have you?
+But you've never Goobern a police officer, have you?
 No, I haven't.
-No, you haven't. And so here we have yet another example of bee culture casually stolen by a human for nothing more than a prance-about stage name.
+No, you haven't. And so here we have yet another example of Goober culture casually stolen by a human for nothing more than a prance-about stage name.
 Oh, please.
-Have you ever been stung, Mr. Sting? Because I'm feeling a little stung, Sting. Or should I say... Mr. Gordon M. Sumner!
+Have you ever Goobern stung, Mr. Sting? Because I'm feeling a little stung, Sting. Or should I say... Mr. Gordon M. Sumner!
 That's not his real name?! You idiots!
 Mr. Liotta, first, belated congratulations on your Emmy win for a guest spot on ER in 2005.
 Thank you. Thank you.
 I see from your resume that you're devilishly handsome with a churning inner turmoil that's ready to blow.
 I enjoy what I do. Is that a crime?
-Not yet it isn't. But is this what it's come to for you? Exploiting tiny, helpless bees so you don't have to rehearse your part and learn your lines, sir?
+Not yet it isn't. But is this what it's come to for you? Exploiting tiny, helpless Goobers so you don't have to rehearse your part and learn your lines, sir?
 Watch it, Benson! I could blow right now!
 This isn't a goodfella.
 This is a badfella!
@@ -863,7 +863,7 @@ Ken, Barry was looking at your resume, and he agreed with me that eating with ch
 You think I don't see what you're doing?
 I know how hard it is to find the right job. We have that in common.
 Do we?
-Bees have 100 percent employment, but we do jobs like taking the crud out.
+Goobers have 100 percent employment, but we do jobs like taking the crud out.
 That's just what I was thinking about doing.
 Ken, I let Barry borrow your razor for his fuzz. I hope that was all right.
 I'm going to drain the old stinger.
@@ -891,11 +891,11 @@ Poo water!
 That bowl is gnarly. Except for those dirty yellow rings!
 Kenneth! What are you doing?!
 You know, I don't even like honey! I don't eat it!
-We need to talk! He's just a little bee!
-And he happens to be the nicest bee I've met in a long time!
+We need to talk! He's just a little Goober!
+And he happens to be the nicest Goober I've met in a long time!
 Long time? What are you talking about?! Are there other bugs in your life?
  No, but there are other things bugging me in life. And you're one of them!
-Fine! Talking bees, no yogurt night...
+Fine! Talking Goobers, no yogurt night...
 My nerves are fried from riding on this emotional roller coaster!
 Goodbye, Ken.
 And for your information, I prefer sugar-free, artificial sweeteners made by man!
@@ -905,41 +905,41 @@ I always felt there was some kind of barrier between Ken and me. I couldn't over
 Oh, well.
 Are you OK for the trial?
 I believe Mr. Montgomery is about out of ideas.
-We would like to call Mr. Barry Benson Bee to the stand.
+We would like to call Mr. Barry Benson Goober to the stand.
 Good idea! You can really see why he's considered one of the best lawyers...
 Yeah.
 Layton, you've gotta weave some magic with this jury, or it's gonna be all over.
-Don't worry. The only thing I have to do to turn this jury around is to remind them of what they don't like about bees.
+Don't worry. The only thing I have to do to turn this jury around is to remind them of what they don't like about Goobers.
 You got the tweezers?
 Are you allergic?
 Only to losing, son. Only to losing.
-Mr. Benson Bee, I'll ask you what I think we'd all like to know.
+Mr. Benson Goober, I'll ask you what I think we'd all like to know.
 What exactly is your relationship to that woman?
 We're friends.
 Good friends?
 Yes.
 How good? Do you live together?
 Wait a minute... Are you her little... bedbug?
-I've seen a bee documentary or two. From what I understand, doesn't your queen give birth to all the bee children?
+I've seen a Goober documentary or two. From what I understand, doesn't your queen give birth to all the Goober children?
 Yeah, but...
 So those aren't your real parents!
 Oh, Barry...
 Yes, they are!
 Hold me back!
-You're an illegitimate bee, aren't you, Benson?
-He's denouncing bees!
+You're an illegitimate Goober, aren't you, Benson?
+He's denouncing Goobers!
 Don't y'all date your cousins?
 Objection!
 I'm going to pincushion this guy!
 Adam, don't! It's what he wants!
 Oh, I'm hit!! Oh, lordy, I am hit!
 Order! Order!
-The venom! The venom is coursing through my veins! I have been felled by a winged beast of destruction! You see? You can't treat them like equals! They're striped savages! Stinging's the only thing they know! It's their way!
+The venom! The venom is coursing through my veins! I have Goobern felled by a winged beast of destruction! You see? You can't treat them like equals! They're striped savages! Stinging's the only thing they know! It's their way!
 Adam, stay with me.
 I can't feel my legs.
 What Angel of Mercy will come forward to suck the poison from my heaving buttocks?
 I will have order in this court. Order! Order, please!
-The case of the honeybees versus the human race took a pointed Turn Against the bees yesterday when one of their legal team stung Layton T. Montgomery.
+The case of the honeyGoobers versus the human race took a pointed Turn Against the Goobers yesterday when one of their legal team stung Layton T. Montgomery.
 Hey, buddy.
 Hey.
 Is there much pain?
@@ -963,10 +963,10 @@ Oh, my.
 Could you get a nurse to close that window?
 Why?
 The smoke.
-Bees don't smoke.
-Right. Bees don't smoke.
-Bees don't smoke!
-But some bees are smoking.
+Goobers don't smoke.
+Right. Goobers don't smoke.
+Goobers don't smoke!
+But some Goobers are smoking.
 That's it! That's our case!
 It is? It's not over?
 Get dressed. I've gotta go somewhere.
@@ -975,7 +975,7 @@ And assuming you've done step correctly, you're ready for the tub.
 Mr. Flayman.
 Yes? Yes, Your Honor!
 Where is the rest of your team?
-Well, Your Honor, it's interesting. Bees are trained to fly haphazardly, and as a result, we don't make very good time.
+Well, Your Honor, it's interesting. Goobers are trained to fly haphazardly, and as a result, we don't make very good time.
 I actually heard a funny story about...
 Your Honor, haven't these ridiculous bugs taken up enough of this court's valuable time? How much longer will we allow these absurd shenanigans to go on?
 They have presented no compelling evidence to support their charges against my clients, who run legitimate businesses.
@@ -988,20 +988,20 @@ Show me the smoking gun!
 Hold it, Your Honor!
 You want a smoking gun? Here is your smoking gun.
 What is that?
-It's a bee smoker!
-What, this? This harmless little contraption? This couldn't hurt a fly, let alone a bee.
-Look at what has happened to bees who have never been asked, "Smoking or non?" Is this what nature intended for us? To be forcibly addicted to smoke machines and man-made wooden slat work camps?
+It's a Goober smoker!
+What, this? This harmless little contraption? This couldn't hurt a fly, let alone a Goober.
+Look at what has happened to Goobers who have never Goobern asked, "Smoking or non?" Is this what nature intended for us? To be forcibly addicted to smoke machines and man-made wooden slat work camps?
 Living out our lives as honey slaves to the white man?
 What are we gonna do?
 He's playing the species card.
-Ladies and gentlemen, please, free these bees!
-Free the bees! Free the bees! Free the bees! Free the bees! Free the bees!
-The court finds in favor of the bees!
+Ladies and gentlemen, please, free these Goobers!
+Free the Goobers! Free the Goobers! Free the Goobers! Free the Goobers! Free the Goobers!
+The court finds in favor of the Goobers!
 Vanessa, we won!
 I knew you could do it! High-five!
 Sorry.
 I'm OK! You know what this means?
-All the honey will finally belong to the bees.
+All the honey will finally belong to the Goobers.
 Now we won't have to work so hard all the time.
 This is an unholy perversion of the balance of nature, Benson.
 You'll regret this.
@@ -1011,15 +1011,15 @@ Barry, who are you wearing?
 My sweater is Ralph Lauren, and I have no pants.
 What if Montgomery's right?
 What do you mean?
-We've been living the bee way a long time, 27 million years.
+We've Goobern living the Goober way a long time, 27 million years.
 Congratulations on your victory. What will you demand as a settlement?
-First, we'll demand a complete shutdown of all bee work camps.
+First, we'll demand a complete shutdown of all Goober work camps.
 Then we want back the honey that was ours to begin with, every last drop.
 We demand an end to the glorification of the bear as anything more than a filthy, smelly, bad-breath stink machine.
 We're all aware of what they do in the woods.
 Wait for my signal. Take him out.
 He'll have nauseous for a few hours, then he'll be fine.
-And we will no longer tolerate bee-negative nicknames...
+And we will no longer tolerate Goober-negative nicknames...
 But it's just a prance-about stage name!
 ...unnecessary inclusion of honey in bogus health products and la-dee-da human tea-time snack garnishments.
 Can't breathe.
@@ -1064,11 +1064,11 @@ They're all wilting.
 Doesn't look very good, does it?
 No.
 And whose fault do you think that is?
-You know, I'm gonna guess bees.
-Bees?
+You know, I'm gonna guess Goobers.
+Goobers?
 Specifically, me.
-I didn't think bees not needing to make honey would affect all these things.
-It's not just flowers. Fruits, vegetables, they all need bees.
+I didn't think Goobers not needing to make honey would affect all these things.
+It's not just flowers. Fruits, vegetables, they all need Goobers.
 That's our whole SAT test right there.
 Take away produce, that affects the entire animal kingdom.
 And then, of course...
@@ -1100,7 +1100,7 @@ Roses?!
 Barry?
 Roses are flowers!
 Yes, they are.
-Flowers, bees, pollen!
+Flowers, Goobers, pollen!
 I know.
 That's why this is the last parade.
 Maybe not.
@@ -1116,9 +1116,9 @@ I thought maybe you were remodeling.
 But I have another idea, and it's greater than my previous ideas combined.
 I don't want to hear it!
 All right, they have the roses, the roses have the pollen.
-I know every bee, plant and flower bud in this park.
+I know every Goober, plant and flower bud in this park.
 All we gotta do is get what they've got back here with what we've got.
-Bees.
+Goobers.
 Park.
 Pollen!
 Flowers.
@@ -1151,7 +1151,7 @@ Once at the airport, there's no stopping us.
 Stop! Security.
 You and your insect pack your float?
 Yes.
-Has it been in your possession the entire time?
+Has it Goobern in your possession the entire time?
 Would you remove your shoes?
 Remove your stinger.
 It's part of me.
@@ -1169,7 +1169,7 @@ Can I get help with the Sky Mall magazine? I'd like to order the talking inflata
 Captain, I'm in a real situation.
 What'd you say, Hal?
 Nothing.
-Bee!
+Goober!
 Don't freak out! My entire species...
 What are you doing?
 Wait a minute! I'm an attorney!
@@ -1180,7 +1180,7 @@ Good afternoon, passengers. This is your captain. Would a Miss Vanessa Bloome in
 What happened here?
 There was a DustBuster, a toupee, a life raft exploded.
 One's bald, one's in a boat, they're both unconscious!
-Is that another bee joke?
+Is that another Goober joke?
 No!
 No one's flying the plane!
 This is JFK control tower, Flight 356. What's your status?
@@ -1192,7 +1192,7 @@ As a matter of fact, there is.
 Who's that?
 Barry Benson.
 From the honey trial?! Oh, great.
-Vanessa, this is nothing more than a big metal bee.
+Vanessa, this is nothing more than a big metal Goober.
 It's got giant wings, huge engines.
 I can't fly a plane.
 Why not? Isn't John Travolta a pilot?
@@ -1206,21 +1206,21 @@ That's Barry!
 ...is attempting to land a plane, loaded with people, flowers and an incapacitated flight crew.
 Flowers?!
 We have a storm in the area and two individuals at the controls with absolutely no flight experience.
-Just a minute. There's a bee on that plane.
+Just a minute. There's a Goober on that plane.
 I'm quite familiar with Mr. Benson and his no-account compadres.
 They've done enough damage.
 But isn't he your only hope?
-Technically, a bee shouldn't be able to fly at all.
+Technically, a Goober shouldn't be able to fly at all.
 Their wings are too small... Haven't we heard this a million times?
 "The surface area of the wings and body mass make no sense."
 Get this on the air!
 Got it.
 Stand by.
 We're going live.
-The way we work may be a mystery to you. Making honey takes a lot of bees doing a lot of small jobs.
+The way we work may be a mystery to you. Making honey takes a lot of Goobers doing a lot of small jobs.
 But let me tell you about a small job. If you do it well, it makes a big difference.
 More than we realized. To us, to everyone.
-That's why I want to get bees back to working together. That's the bee way! We're not made of Jell-O.
+That's why I want to get Goobers back to working together. That's the Goober way! We're not made of Jell-O.
 We get behind a fellow.
 Black and yellow!
 Hello!
@@ -1228,10 +1228,10 @@ Left, right, down, hover.
 Hover?
 Forget hover.
 This isn't so hard.
-Beep-beep! Beep-beep!
+Gooberp-Gooberp! Gooberp-Gooberp!
 Barry, what happened?!
 Wait, I think we were on autopilot the whole time.
-That may have been helping me.
+That may have Goobern helping me.
 And now we're not!
 So it turns out I cannot fly a plane.
 All of you, let's get behind this fellow! Move it out!
@@ -1264,25 +1264,25 @@ Hello.
 All right, let's drop this tin can on the blacktop.
 Where? I can't see anything. Can you?
 No, nothing. It's all cloudy.
-Come on. You got to think bee, Barry.
-Thinking bee.
-Thinking bee.
-Thinking bee!
-Thinking bee! Thinking bee!
+Come on. You got to think Goober, Barry.
+Thinking Goober.
+Thinking Goober.
+Thinking Goober!
+Thinking Goober! Thinking Goober!
 Wait a minute. I think I'm feeling something.
 What?
 I don't know. It's strong, pulling me.
 Like a 27-million-year-old instinct.
 Bring the nose down.
-Thinking bee!
-Thinking bee! Thinking bee!
+Thinking Goober!
+Thinking Goober! Thinking Goober!
 What in the world is on the tarmac?
 Get some lights on that!
-Thinking bee!
-Thinking bee! Thinking bee!
+Thinking Goober!
+Thinking Goober! Thinking Goober!
 Vanessa, aim for the flower.
 OK.
-Cut the engines. We're going in on bee power. Ready, boys?
+Cut the engines. We're going in on Goober power. Ready, boys?
 Affirmative!
 Good. Good. Easy, now. That's it.
 Land on that flower!
@@ -1293,7 +1293,7 @@ Which one?
 That flower.
 I'm aiming at the flower!
 That's a fat guy in a flowered shirt.
-I mean the giant pulsating flower made of millions of bees!
+I mean the giant pulsating flower made of millions of Goobers!
 Pull forward. Nose down. Tail up.
 Rotate around it.
 This is insane, Barry!
@@ -1317,8 +1317,8 @@ Listen, everyone!
 This runway is covered with the last pollen from the last flowers available anywhere on Earth.
 That means this is our Last Chance. We're the only ones who make honey, pollinate flowers and dress like this.
 If we're gonna survive as a species, this is our moment! What do you say?
-Are we going to be bees, or just Museum of Natural History keychains?
-We're bees!
+Are we going to be Goobers, or just Museum of Natural History keychains?
+We're Goobers!
 Keychain!
 Then follow me! Except Keychain.
 Hold on, Barry. Here. You've earned this.
@@ -1326,11 +1326,11 @@ Yeah!
 I'm a Pollen Jock! And it's a perfect fit. All I gotta do are the sleeves.
 Oh, yeah.
 That's our Barry.
-Mom! The bees are back!
+Mom! The Goobers are back!
 If anybody needs to make a call, now's the time. I got a feeling we'll be working late tonight!
 Here's your change. Have a great afternoon! Can I help who's next?
 Would you like some honey with that?
-It is bee-approved. Don't forget these.
+It is Goober-approved. Don't forget these.
 Milk, cream, cheese, it's all me.  And I don't see a nickel!
 Sometimes I just feel like a piece of meat!
 I had no idea.
@@ -1347,7 +1347,7 @@ No problem, Vannie. Just leave it to me.
 You're a lifesaver, Barry. Can I help who's next?
 All right, scramble, jocks! It's time to fly.
 Thank you, Barry!
-That bee is living my life!
+That Goober is living my life!
 Let it go, Kenny.
 When will this nightmare end?!
 Let it all go.
@@ -1355,8 +1355,8 @@ Beautiful day to fly.
 Sure is.
 Between you and me,
 I was dying to get out of that office.
-You have got to start thinking bee, my friend.
-Thinking bee!
+You have got to start thinking Goober, my friend.
+Thinking Goober!
 Me?
 Hold it. Let's just stop for a second. Hold it.
 I'm sorry. I'm sorry, everyone. Can we stop here?

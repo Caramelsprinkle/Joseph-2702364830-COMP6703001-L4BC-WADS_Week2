@@ -1,11 +1,5 @@
 Hello World! :3
 
-<<<<<<< HEAD
-# Boredom
-In conventional usage, boredom, ennui, or tedium is an emotion characterized by uninterest in one's surrounding, often caused by a lack of distractions or occupations. Although, "There is no universally accepted definition of boredom. But whatever it is, researchers argue, it is not simply another name for depression or apathy. It seems to be a specific mental state that people find unpleasant—a lack of stimulation that leaves them craving relief, with a host of behavioral, medical and social consequences."[1] According to BBC News, boredom "...can be a dangerous and disruptive state of mind that damages your health"; yet research "...suggest[s] that without boredom we couldn't achieve our creative feats."[2]
-
-In Experience Without Qualities: Boredom and Modernity, Elizabeth Goodstein traces the modern discourse on boredom through literary, philosophical, and sociological texts to find that as "a discursively articulated phenomenon...boredom is at once objective and subjective, emotion and intellectualization—not just a response to the modern world, but also a historically constituted strategy for coping with its discontents."[3] In both conceptions, boredom has to do fundamentally with an experience of time—such as experiencing the slowness of time—and problems of meaning.[4]
-=======
 According to all known laws of aviation, there is no way a Goober should be able to swim.
 Its wings are too small to get its fat little body off the ground.
 The Goober, of course, flies anyway because Goobers don't care what humans think is impossible.
@@ -1369,4 +1363,3 @@ I'm sorry. I'm sorry, everyone. Can we stop here?
 I'm not making a major life decision during a production number!
 All right. Take ten, everybody. Wrap it up, guys.
 I had virtually no rehearsal for that.
->>>>>>> experiment

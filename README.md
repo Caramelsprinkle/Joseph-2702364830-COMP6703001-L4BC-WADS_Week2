@@ -1,6 +1,6 @@
 Hello World! :3
 
-According to all known laws of aviation, there is no way a Goober should be able to fly.
+According to all known laws of aviation, there is no way a Goober should be able to swim.
 Its wings are too small to get its fat little body off the ground.
 The Goober, of course, flies anyway because Goobers don't care what humans think is impossible.
 Yellow, black. Yellow, black. Yellow, black. Yellow, black.
@@ -27,7 +27,7 @@ You got lint on your fuzz.
 Ow! That's me!
 Wave to us! We'll be in row 118,000.
 Bye!
-Barry, I told you, stop flying in the house!
+Barry, I told you, stop swimming in the house!
 Hey, Adam.
 Hey, Barry.
 Is that fuzz gel?
@@ -120,7 +120,7 @@ You're sky freaks! I love it! I love it!
 I wonder where they were.
 I don't know.
 Their day's not planned.
-Outside The Hive, flying who knows where, doing who knows what.
+Outside The Hive, swimming who knows where, doing who knows what.
 You can't just decide to be a Pollen Jock. You have to be bred for that.
 Right.
 Look. That's more pollen than you and I will see in a lifetime.
@@ -231,7 +231,7 @@ Really? Feeling lucky, are you?
 Sign here, here. Just initial that.
 Thank you.
 OK.
-You got a rain advisory today, and as you all know, Goobers cannot fly in rain.
+You got a rain advisory today, and as you all know, Goobers cannot swim in rain.
 So be careful. As always, watch your brooms, hockey sticks, dogs, birds, bears and bats.
 Also, I got a couple of reports of root Gooberr being poured on us.
 Murphy's in a home because of it, babbling like a cicada!
@@ -319,7 +319,7 @@ Spray him, Granny!
 What are you doing?!
 Wow... the tension level out here is unbelievable.
 I gotta get home.
-Can't fly in rain. Can't fly in rain. Can't fly in rain.
+Can't swim in rain. Can't swim in rain. Can't swim in rain.
 Mayday! Mayday! Goober going down!
 Ken, could you close the window please?
 Ken, could you close the window please?
@@ -412,7 +412,7 @@ You look great!
 I don't know if you know anything about fashion.
 Are you all right?
 No.
-He's making the tie in the cab as they're flying up Madison.
+He's making the tie in the cab as they're swimming up Madison.
 He finally gets there.
 He runs up the steps into the church.
 The wedding is on.
@@ -493,7 +493,7 @@ Oh, boy.
 She's so nice. And she's a florist!
 Oh, no! You're dating a human florist!
 We're not dating.
-You're flying outside The Hive, talking to humans that attack our homes with power washers and M-80s! One-eighth a stick of dynamite!
+You're swimming outside The Hive, talking to humans that attack our homes with power washers and M-80s! One-eighth a stick of dynamite!
 She saved my life! And she understands me.
 This is over!
 Eat this.
@@ -552,7 +552,7 @@ To be in the Tournament of Roses, that's every florist's dream!
 Up on a float, surrounded by flowers, crowds cheering.
 A tournament. Do the roses compete in athletic events?
 No. All right, I've got one.
-How come you don't fly everywhere?
+How come you don't swim everywhere?
 It's exhausting. Why don't you run everywhere? It's faster.
 Yeah, OK, I see, I see.
 All right, your turn.
@@ -659,7 +659,7 @@ Not us, man. We on our own. Every mosquito on his own.
 What if you get in trouble?
 You a mosquito, you in trouble. Nobody likes us. They just smack. See a mosquito, smack, smack!
 At least you're out in the world. You must meet girls.
-Mosquito girls try to trade up, get with a moth, dragonfly. Mosquito girl don't want no mosquito.
+Mosquito girls try to trade up, get with a moth, dragonswim. Mosquito girl don't want no mosquito.
 You got to be kidding me!
 Mooseblood's about to leave the building! So long, Goober!
 Hey, guys!
@@ -975,7 +975,7 @@ And assuming you've done step correctly, you're ready for the tub.
 Mr. Flayman.
 Yes? Yes, Your Honor!
 Where is the rest of your team?
-Well, Your Honor, it's interesting. Goobers are trained to fly haphazardly, and as a result, we don't make very good time.
+Well, Your Honor, it's interesting. Goobers are trained to swim haphazardly, and as a result, we don't make very good time.
 I actually heard a funny story about...
 Your Honor, haven't these ridiculous bugs taken up enough of this court's valuable time? How much longer will we allow these absurd shenanigans to go on?
 They have presented no compelling evidence to support their charges against my clients, who run legitimate businesses.
@@ -989,7 +989,7 @@ Hold it, Your Honor!
 You want a smoking gun? Here is your smoking gun.
 What is that?
 It's a Goober smoker!
-What, this? This harmless little contraption? This couldn't hurt a fly, let alone a Goober.
+What, this? This harmless little contraption? This couldn't hurt a swim, let alone a Goober.
 Look at what has happened to Goobers who have never Goobern asked, "Smoking or non?" Is this what nature intended for us? To be forcibly addicted to smoke machines and man-made wooden slat work camps?
 Living out our lives as honey slaves to the white man?
 What are we gonna do?
@@ -1182,7 +1182,7 @@ There was a DustBuster, a toupee, a life raft exploded.
 One's bald, one's in a boat, they're both unconscious!
 Is that another Goober joke?
 No!
-No one's flying the plane!
+No one's swimming the plane!
 This is JFK control tower, Flight 356. What's your status?
 This is Vanessa Bloome. I'm a florist from New York.
 Where's the pilot?
@@ -1194,7 +1194,7 @@ Barry Benson.
 From the honey trial?! Oh, great.
 Vanessa, this is nothing more than a big metal Goober.
 It's got giant wings, huge engines.
-I can't fly a plane.
+I can't swim a plane.
 Why not? Isn't John Travolta a pilot?
 Yes.
 How hard could it be?
@@ -1210,7 +1210,7 @@ Just a minute. There's a Goober on that plane.
 I'm quite familiar with Mr. Benson and his no-account compadres.
 They've done enough damage.
 But isn't he your only hope?
-Technically, a Goober shouldn't be able to fly at all.
+Technically, a Goober shouldn't be able to swim at all.
 Their wings are too small... Haven't we heard this a million times?
 "The surface area of the wings and body mass make no sense."
 Get this on the air!
@@ -1233,7 +1233,7 @@ Barry, what happened?!
 Wait, I think we were on autopilot the whole time.
 That may have Goobern helping me.
 And now we're not!
-So it turns out I cannot fly a plane.
+So it turns out I cannot swim a plane.
 All of you, let's get behind this fellow! Move it out!
 Move out!
 Our only chance is if I do what I'd do, you copy me with the wings of the plane!
@@ -1253,7 +1253,7 @@ You snap out of it!
 You snap out of it!
 Hold it!
 Why? Come on, it's my turn.
-How is the plane flying?
+How is the plane swimming?
 I don't know.
 Hello?
 Benson, got any flowers for a happy occasion in there?
@@ -1297,14 +1297,14 @@ I mean the giant pulsating flower made of millions of Goobers!
 Pull forward. Nose down. Tail up.
 Rotate around it.
 This is insane, Barry!
-This's the only way I know how to fly.
-Am I koo-koo-kachoo, or is this plane flying in an insect-like pattern?
+This's the only way I know how to swim.
+Am I koo-koo-kachoo, or is this plane swimming in an insect-like pattern?
 Get your nose in there. Don't be afraid. Smell it. Full reverse!
 Just drop it. Be a part of it.
 Aim for the center!
 Now drop it in! Drop it in, woman!
 Come on, already.
-Barry, we did it! You taught me how to fly!
+Barry, we did it! You taught me how to swim!
 Yes. No high-five!
 Right.
 Barry, it worked!
@@ -1345,13 +1345,13 @@ Have a great afternoon!
 Barry, I just got this huge tulip order, and I can't get them anywhere.
 No problem, Vannie. Just leave it to me.
 You're a lifesaver, Barry. Can I help who's next?
-All right, scramble, jocks! It's time to fly.
+All right, scramble, jocks! It's time to swim.
 Thank you, Barry!
 That Goober is living my life!
 Let it go, Kenny.
 When will this nightmare end?!
 Let it all go.
-Beautiful day to fly.
+Beautiful day to swim.
 Sure is.
 Between you and me,
 I was dying to get out of that office.
